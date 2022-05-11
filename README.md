@@ -1,2 +1,0 @@
-# LastPirates
-sus
